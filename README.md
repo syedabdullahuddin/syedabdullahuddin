@@ -8,8 +8,8 @@
 
 - 💬 Ask me about **fronted development, abdobe illustrator,photoshop,figma,capcut,videoediting,3dmodels,generative ai, digital marketing generative ai integrated with python**
 
-- 📫 How to reach me **abdulsyeddd.11@gmail.com**
--                     **sasoftwarehouse1@gmail.com**
+- 📫 How to reach me **abdulsyeddd.11@gmail.com , sasoftwarehouse1@gmail.com**
+-                     
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
